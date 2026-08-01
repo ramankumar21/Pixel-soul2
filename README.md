@@ -1,2 +1,1 @@
 # Pixel-soul2
-.
